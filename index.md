@@ -1,3 +1,3 @@
-# What do you mean oatmeal is bland?</h1>
+# What do you mean oatmeal is bland?
   - This is a page to argue and advocate for oatmeal
  
